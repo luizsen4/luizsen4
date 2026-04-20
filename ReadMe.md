@@ -1,5 +1,5 @@
 # 💫 About Me:
-Sou estudante Mobile <br>Estou a procura de estágio<br>
+Sou estudante <br> A meta é ser melhor que ontem <br>
 
 
 ## 🌐 Socials:
