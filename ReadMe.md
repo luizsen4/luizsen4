@@ -1,5 +1,5 @@
 # 💫 About Me:
-Sou estudante <br> A meta é ser melhor que ontem <br>
+Sou estudante, cultura DevOps!
 
 
 ## 🌐 Socials:
